@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a hobbyist coder working on whatever project I want to do at the momment
+I'm a self taught hobbyist working on whatever project I want to do at the momment
 
 
 ## 🌐 Socials:
